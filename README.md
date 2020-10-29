@@ -1,1 +1,0 @@
-# scannerTerms.github.io
